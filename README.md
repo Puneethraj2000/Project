@@ -1,2 +1,2 @@
-# G-Organic-
-The Natural Product
+G-Organic
+      The Natural Product
